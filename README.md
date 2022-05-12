@@ -3,4 +3,4 @@ India is a democracy
 Amercia is a democracy.
 Pakistan is not a democracy
 
-I am not the one
+I am actually the one who not the one
