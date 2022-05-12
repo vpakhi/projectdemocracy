@@ -5,3 +5,6 @@ Pakistan is not a democracy
 
 
 I am the one who is noone.
+
+
+Bhutan too is not a democracy
